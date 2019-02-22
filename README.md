@@ -1,2 +1,2 @@
-# tugasday3
+# hai nicc
 ini tugas day 3
